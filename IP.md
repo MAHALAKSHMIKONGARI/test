@@ -51,10 +51,10 @@ Any work is used without the permission of the inventor or creator is infringeme
 
 ## References
 
-To know more about Intellectual property : https://en.wikipedia.org/wiki/Intellectual_property
+To know more about Intellectual property : []https://en.wikipedia.org/wiki/Intellectual_property
 
-To know more on IP rights : https://www.wto.org/english/tratop_e/trips_e/intel1_e.htm
+To know more on IP rights : []https://www.wto.org/english/tratop_e/trips_e/intel1_e.htm
 
-To know more about World Intellectual Property Organization : https://en.wikipedia.org/wiki/World_Intellectual_Property_Organization
+To know more about World Intellectual Property Organization : []https://en.wikipedia.org/wiki/World_Intellectual_Property_Organization
 
-To know my Linkedin profile : https://www.linkedin.com/in/mahalakshmi-kongari-7aaa04a7/
+To know my Linkedin profile : []https://www.linkedin.com/in/mahalakshmi-kongari-7aaa04a7/
